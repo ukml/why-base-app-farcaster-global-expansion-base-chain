@@ -68,3 +68,4 @@ Add your tips/stories via PR. Star/share—let's grow!
 Github @ukml on X @d_zc7e / @shazu on Farcaster @shazu on Baseapp for questions.
 
 *Last Updated: Dec 15, 2025*
+Appiciate for kind comments to improve and make better.( @base is my passion) 
